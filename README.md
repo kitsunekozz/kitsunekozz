@@ -19,7 +19,7 @@
 <img width="48" height="500" src="https://github.com/kitsunekozz/meow/blob/74d6acbc73814957378f4395d0471f2d627208bf/51201865e0713cc8f1da05c57c09337e.jpg">
 <img width="48" height="500" src="https://github.com/kitsunekozz/meow/blob/74d6acbc73814957378f4395d0471f2d627208bf/ba4e8b5e2408311c1ce1e47ddb64e6e9.jpg">
 
-more info in my [strawpage!](kitpara.straw.page)
+more info in my [strawpage!](https://kitpara.straw.page/)
 
  ‎ ‎  ‎‎ 
  
