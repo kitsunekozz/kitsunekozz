@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="800" height="800" src="https://github.com/kitsunekozz/meow/blob/dd39431cfe9fd511e8ebd4228d872862549f4f0e/download%20(29).png">
+  <img width="800" height="800" src="https://github.com/kitsunekozz/meow/blob/main/download%20(29).png?raw=true">
  <img width=500" height="500" src="https://github.com/kitsunekozz/meow/blob/51911347d30d4fc1bba413d6decdd74141eb9b04/depositphotos_10763179-stock-illustration-music-background%20(1).jpg">
 
  ‎ ‎  ‎‎ 
