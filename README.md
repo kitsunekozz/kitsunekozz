@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1485795270863224984/download2029.png?ex=69c32a2d&is=69c1d8ad&hm=fb0b59a40e16c5c8855d6ffd84107c31c1fd3c192e6ef784284f370d3c758187&=&format=webp&quality=lossless&width=535&height=110">
+  <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1486117506723876914/i8kjurgtzdrfsd.png?ex=69c45648&is=69c304c8&hm=5c11541356b7dc212168d44658ab243ef6063394388dc970e5f0ea3b3e3f91c7&=&format=webp&quality=lossless&width=1500&height=498">
  <img width=500" height="500" src="https://media.discordapp.net/attachments/1327763014601936906/1485795580490813540/depositphotos_10763179-stock-illustration-music-background201.png?ex=69c32a77&is=69c1d8f7&hm=a55351a74d28332e215f5dd2f458801914ff78794d64ddaf6ebfa97d2f80eac9&=&format=webp&quality=lossless&width=750&height=530">
 
  ‎ ‎  ‎‎ 
@@ -26,5 +26,5 @@ more info in my [strawpage!](https://kitpara.straw.page/)
  ‎ ‎  ‎‎ 
  
  
- <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1485795270863224984/download2029.png?ex=69c32a2d&is=69c1d8ad&hm=fb0b59a40e16c5c8855d6ffd84107c31c1fd3c192e6ef784284f370d3c758187&=&format=webp&quality=lossless&width=535&height=110">
+ <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1486117506723876914/i8kjurgtzdrfsd.png?ex=69c45648&is=69c304c8&hm=5c11541356b7dc212168d44658ab243ef6063394388dc970e5f0ea3b3e3f91c7&=&format=webp&quality=lossless&width=1500&height=498">
  </div>
