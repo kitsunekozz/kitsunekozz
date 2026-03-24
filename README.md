@@ -1,6 +1,6 @@
 <p align="center">
   <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1485795270863224984/download2029.png?ex=69c32a2d&is=69c1d8ad&hm=fb0b59a40e16c5c8855d6ffd84107c31c1fd3c192e6ef784284f370d3c758187&=&format=webp&quality=lossless&width=535&height=110">
- <img width=500" height="500" src="https://github.com/kitsunekozz/meow/blob/51911347d30d4fc1bba413d6decdd74141eb9b04/depositphotos_10763179-stock-illustration-music-background%20(1).jpg">
+ <img width=500" height="500" src="https://media.discordapp.net/attachments/1327763014601936906/1485795580490813540/depositphotos_10763179-stock-illustration-music-background201.png?ex=69c32a77&is=69c1d8f7&hm=a55351a74d28332e215f5dd2f458801914ff78794d64ddaf6ebfa97d2f80eac9&=&format=webp&quality=lossless&width=750&height=530">
 
  ‎ ‎  ‎‎ 
  
@@ -9,15 +9,15 @@
 
  ‎ ‎  ‎‎ 
 
- <img width="20" height="100" src="https://github.com/kitsunekozz/meow/blob/13e6d2f5d8b06a14b23283a39e8decdf657bd220/download%20(28).png">
+ <img width="20" height="100" src="https://media.discordapp.net/attachments/1327763014601936906/1485795756668485663/download2028.png?ex=69c32aa1&is=69c1d921&hm=cb97fbaeea5d25238b3196bdaee528b7b8414ca0c55ec0f9413a453cc1d11007&=&format=webp&quality=lossless&width=629&height=590">
  𝄞‎ ‎ ‎  ‎‎ kit  . . . ,‵3
  
- they/any 、<img width="20" height="100" src="https://github.com/kitsunekozz/meow/blob/13e6d2f5d8b06a14b23283a39e8decdf657bd220/download%20(37).png">
+ they/any 、<img width="20" height="100" src="https://media.discordapp.net/attachments/1327763014601936906/1485795914080845834/download2037.png?ex=69c32ac6&is=69c1d946&hm=69507468c8fd5139b783a9b4ec1979621c694f09f94e0a4002d1863d23856835&=&format=webp&quality=lossless&width=535&height=535">
   agender lesbian
 
- <img width="48" height="500" src="https://github.com/kitsunekozz/meow/blob/694c0679299e6a6a14f229ccae3c1f3c1f773214/1fe7e19729d830ac98964e34b89be49b.jpg">
-<img width="48" height="500" src="https://github.com/kitsunekozz/meow/blob/74d6acbc73814957378f4395d0471f2d627208bf/51201865e0713cc8f1da05c57c09337e.jpg">
-<img width="48" height="500" src="https://github.com/kitsunekozz/meow/blob/74d6acbc73814957378f4395d0471f2d627208bf/ba4e8b5e2408311c1ce1e47ddb64e6e9.jpg">
+ <img width="48" height="500" src="https://media.discordapp.net/attachments/1327763014601936906/1485795999560761434/1fe7e19729d830ac98964e34b89be49b.png?ex=69c32adb&is=69c1d95b&hm=00e77d4b7c2774409eddb60ba35effb97bd0991b92d7a6193261642e49984f95&=&format=webp&quality=lossless&width=920&height=518">
+<img width="48" height="500" src="https://media.discordapp.net/attachments/1327763014601936906/1485796157300015235/51201865e0713cc8f1da05c57c09337e.png?ex=69c32b00&is=69c1d980&hm=72d320658bf3d0728e42184f5e1ca83fb040320fac5625bac320862cd9dfd2b6&=&format=webp&quality=lossless&width=920&height=518">
+<img width="48" height="500" src="https://media.discordapp.net/attachments/1327763014601936906/1485796236111122492/ba4e8b5e2408311c1ce1e47ddb64e6e9.png?ex=69c32b13&is=69c1d993&hm=142c36207030b52eed7060fd6a66e71816f0244631663049b56e226b7b7504ed&=&format=webp&quality=lossless&width=920&height=518">
 
 more info in my [strawpage!](https://kitpara.straw.page/)
 
@@ -26,5 +26,5 @@ more info in my [strawpage!](https://kitpara.straw.page/)
  ‎ ‎  ‎‎ 
  
  
- <img width="800" height="800" src="https://github.com/kitsunekozz/meow/blob/dd39431cfe9fd511e8ebd4228d872862549f4f0e/download%20(29).png">
+ <img width="800" height="800" src="https://media.discordapp.net/attachments/1327763014601936906/1485795270863224984/download2029.png?ex=69c32a2d&is=69c1d8ad&hm=fb0b59a40e16c5c8855d6ffd84107c31c1fd3c192e6ef784284f370d3c758187&=&format=webp&quality=lossless&width=535&height=110">
  </div>
