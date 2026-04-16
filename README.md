@@ -18,7 +18,7 @@
 <img width="32" height="20" src="https://file.garden/adnXl_Vns05znN8I/ba4e8b5e2408311c1ce1e47ddb64e6e9.jpg">
 <img width="32" height="20" src="https://file.garden/adnXl_Vns05znN8I/51201865e0713cc8f1da05c57c09337e.jpg">
 
-more info in my strawpage!
+more info in my [strawpage!](https://kitpara.straw.page/)
 
  ‎ ‎  ‎‎ 
  
